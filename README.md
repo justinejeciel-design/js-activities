@@ -1,1 +1,2 @@
 # js-activities
+Mango activities💀💀
